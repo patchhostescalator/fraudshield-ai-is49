@@ -1,4 +1,4 @@
-# 
+# Personalizado FraudShield guia. Baixe e instale com binários verificados e processamento em lote — rápido, seguro e fácil de usar.
 
 
 
